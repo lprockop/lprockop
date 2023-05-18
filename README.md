@@ -1,2 +1,2 @@
 
-Contact: lprockop@gmail.com / lp2974@columbia.edu
+Contact: lp2974@columbia.edu / lprockop@gmail.com
